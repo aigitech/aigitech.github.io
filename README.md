@@ -1,1 +1,0 @@
-# aigitech.github.io
